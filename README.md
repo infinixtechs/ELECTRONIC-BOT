@@ -1,6 +1,6 @@
 # ELECTRONIC-BOT
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-## 𝑯𝑬𝑹𝑬 𝑰𝑺 𝑻𝑯𝑬 𝑷𝑹𝑶𝑮𝑹𝑬𝑺𝑺 𝑶𝑭 𝑷𝑶𝑷𝑲8𝑫 𝑴𝑫 
+## 𝑯𝑬𝑹𝑬 𝑰𝑺 𝑻𝑯𝑬 𝑷𝑹𝑶𝑮𝑹𝑬𝑺𝑺 𝑶𝑭 𝑷𝑶𝑷𝑲𝑰𝑫 𝑴𝑫 
 <p/>
 <p align="center">
 
